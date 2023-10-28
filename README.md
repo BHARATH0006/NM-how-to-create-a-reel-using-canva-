@@ -1,8 +1,8 @@
 # NM-how-to-create-a-reel-using-canva-
 naan mudulvan team id:
 team members:
-1) FC155E02CC905A1AE0C4404A42210271- Bharath T.K
-2) 
+1) FC155E02CC905A1AE0C4404A42210271- Bharath.T.K
+2) 07757DBA697E37780DA465DBCB4982A7- Bharath.A
 3)
 4)
 Assignment links:
