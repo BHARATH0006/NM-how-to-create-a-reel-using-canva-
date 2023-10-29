@@ -18,7 +18,7 @@ Assignment links:
 5)demo ideo link-https://drive.google.com/file/d/1YT5AaxrO7XjWc-oQHkxLzvUe1fE9RoGj/view?usp=drivesdk
 It is also attached here in mp4 format
 
-gihub link-https://github.com/BHARATH0006/NM-how-to-create-a-reel-using-canva-
+github link-https://github.com/BHARATH0006/NM-how-to-create-a-reel-using-canva-
 
 
 
