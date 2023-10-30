@@ -1,10 +1,12 @@
 ok# NM-how-to-create-a-reel-using-canva-
-naan mudulvan team id:
+naan mudulvan team id:NM2023TMID04326
+
 team members:
 1) FC155E02CC905A1AE0C4404A42210271- Bharath.T.K
 2) 07757DBA697E37780DA465DBCB4982A7- Bharath.A
-3)
-4)
+3)E3C6C8A6F00A5D4A63B44B90FC47E639- Abishek kumar.M
+4)7CEDF1645DFAC2986DA4D669B00677FC- Arbin jino R.K
+
 Assignment links:
 1)Blog or Website URL-https://bharathabd.blogspot.com/2023/10/rose-milk-jb2.html?m=1
 
