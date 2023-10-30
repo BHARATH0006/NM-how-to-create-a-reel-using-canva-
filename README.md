@@ -1,4 +1,4 @@
-ok# NM-how-to-create-a-reel-using-canva-
+# NM-how-to-create-a-reel-using-canva-
 naan mudulvan team id:NM2023TMID04326
 
 team members:
@@ -15,7 +15,7 @@ Assignment links:
 3)social media advertisement posters-attached here as jpg-
 
 
-4)Email Newsletter Design-https://bharathabd.blogspot.com/2023/10/email-newsletter-rose-milk-jb2.html
+4)Email Newsletter Design- https://www.canva.com/design/DAFyibayJkw/RToFtqHzMVZI765tcwXbAg/edit?utm_content=DAFyibayJkw&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
 5)demo ideo link-https://drive.google.com/file/d/1YT5AaxrO7XjWc-oQHkxLzvUe1fE9RoGj/view?usp=drivesdk
 It is also attached here in mp4 format
